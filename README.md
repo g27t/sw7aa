@@ -12,3 +12,6 @@ https://www.dropbox.com/scl/fi/cvfswp5t6thooxmz59hs2/Toyota_Camry_2006.zip?rlkey
 
 Altima 2023
 https://www.dropbox.com/scl/fi/c5rl9y5gdq430ey00ujfp/Nissan-Altima-2023-2024.zip?rlkey=y563mirtc4gyo291l7cdjdnur&dl=1
+
+Land Cruiser 2020
+https://www.dropbox.com/scl/fi/q0f5gdb5ifh3jpir3o60c/vehicles.zip?rlkey=zxyqxrrgwiv5czmju91shy8wq&dl=1
