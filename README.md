@@ -6,3 +6,6 @@ https://www.dropbox.com/scl/fi/aecgomz6tchopfrq36oxi/cruze16_1.zip?rlkey=ismcij8
 
 Corolla 2020
 https://www.dropbox.com/scl/fi/a3tcgxdaogsh3zfbobdi5/wLi-corolla.zip?rlkey=ez5ht22icifjdbt61t6e0i8ai&st=9ea9plge&dl=1
+
+Camry 2006 
+https://www.dropbox.com/scl/fi/cvfswp5t6thooxmz59hs2/Toyota_Camry_2006.zip?rlkey=8o3r7ogjx9repu6zyitxfn7cz&dl=0
