@@ -9,3 +9,6 @@ https://www.dropbox.com/scl/fi/a3tcgxdaogsh3zfbobdi5/wLi-corolla.zip?rlkey=ez5ht
 
 Camry 2006 
 https://www.dropbox.com/scl/fi/cvfswp5t6thooxmz59hs2/Toyota_Camry_2006.zip?rlkey=8o3r7ogjx9repu6zyitxfn7cz&dl=1
+
+Altima 2023
+https://www.dropbox.com/scl/fi/c5rl9y5gdq430ey00ujfp/Nissan-Altima-2023-2024.zip?rlkey=y563mirtc4gyo291l7cdjdnur&dl=1
