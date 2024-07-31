@@ -6,7 +6,7 @@ Cruz 16
 https://www.dropbox.com/scl/fi/aecgomz6tchopfrq36oxi/cruze16_1.zip?rlkey=ismcij8zpmduoar0mviph7u3g&st=l3mjhlz1&dl=1
 
 Sierra 2017
-https://www.dropbox.com/scl/fi/6yvzvhie8h88dsvzklu48/GMC-Sierra-2017-2015-V1.2.zip?rlkey=t7tzalgql7klmxugrl2zvz2pc&dl=0
+https://www.dropbox.com/scl/fi/6yvzvhie8h88dsvzklu48/GMC-Sierra-2017-2015-V1.2.zip?rlkey=t7tzalgql7klmxugrl2zvz2pc&dl=1
 
 Camry 2006 
 https://www.dropbox.com/scl/fi/cvfswp5t6thooxmz59hs2/Toyota_Camry_2006.zip?rlkey=8o3r7ogjx9repu6zyitxfn7cz&dl=1
