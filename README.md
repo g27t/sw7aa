@@ -22,3 +22,12 @@ Sonta
 https://www.dropbox.com/scl/fi/aa0xls18c66xj5kewf39r/77sonata.zip?rlkey=73eyp7i0a6mft0k5pxsebrcqu&dl=1
 
 kiaa https://www.dropbox.com/scl/fi/x0mcz2td7gffoh1oirc6u/rio12_meto_dyfwl.zip?rlkey=g7fjm67zex4qxa9590kfktqdu&dl=1
+
+map 2
+https://www.dropbox.com/scl/fi/mqkdhdhx5c6jsi8samvao/ALQWAT_By_M6Noo5.zip?rlkey=77hul1qvxz3js6spkoe0hoyhf&dl=1
+
+Elantra 2020 
+https://www.dropbox.com/scl/fi/ujz4nnjr4fh3k6vf07sdl/elantraad.zip?rlkey=ief6b4xdhw0jq284cgotpf5wr&dl=1
+
+Land Cruiser 202020
+https://www.dropbox.com/scl/fi/u4rzv69icso0z5nbupgwp/tlc200k.zip?rlkey=6sw90w71ol91knsticvq9hqq7&dl=1
