@@ -31,3 +31,5 @@ https://www.dropbox.com/scl/fi/ujz4nnjr4fh3k6vf07sdl/elantraad.zip?rlkey=ief6b4x
 
 Land Cruiser 202020
 https://www.dropbox.com/scl/fi/u4rzv69icso0z5nbupgwp/tlc200k.zip?rlkey=6sw90w71ol91knsticvq9hqq7&dl=1
+
+Tahoe police https://www.dropbox.com/scl/fi/ucj33x7ic0mn756dpwb59/Chevrolet-Tahoe.zip?rlkey=b9721cxexokwss8fdyc5weigw&dl=1
