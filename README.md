@@ -16,8 +16,7 @@ https://www.dropbox.com/scl/fi/q0f5gdb5ifh3jpir3o60c/vehicles.zip?rlkey=zxyqxrrg
 
 mep https://www.dropbox.com/scl/fi/i0w1stjnwitvul3zb22ol/3thim_AL_SLy.zip?rlkey=ff0zivmnmp4yqs6iidcfzgone&st=t1nflnsf&dl=1
 
-gmc
-https://www.dropbox.com/scl/fi/en4sl2s6hdd3wj809roou/2020-GMC-Sierra.zip?rlkey=kw0iak118c131gygpdb2b0cma&dl=1
+Elantra https://www.dropbox.com/scl/fi/sjgxf0ce3tbp0lw9ex83c/Elantra.zip?rlkey=svmr5br4n3abone8lx9z9rddh&dl=0
 
 Sonta 
 https://www.dropbox.com/scl/fi/aa0xls18c66xj5kewf39r/77sonata.zip?rlkey=73eyp7i0a6mft0k5pxsebrcqu&dl=1
