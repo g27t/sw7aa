@@ -30,3 +30,8 @@ https://www.dropbox.com/scl/fi/u4rzv69icso0z5nbupgwp/tlc200k.zip?rlkey=6sw90w71o
 
 دوج 2010 https://www.dropbox.com/scl/fi/0b3sms2jeu6zqcag7dvco/necrocharger.zip?rlkey=5s4x8593pghsya7qoclh1y5kt&dl=1
 
+التيما 24 :
+https://www.dropbox.com/scl/fi/7epl7wnwxsuakc3lraxxb/Nissan_Altima_2023-2024.zip?rlkey=jbn7z3y5xys5ftz9te7qf8u7i&dl=1
+
+تاهو 2022_2020
+https://www.dropbox.com/scl/fi/4q6vxbue1fcaxa44kf7zs/taho22kenemation___40_1__41_.zip?rlkey=61wls7pes5janl4j6k31iklq7&dl=1
