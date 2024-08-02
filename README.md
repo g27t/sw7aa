@@ -4,8 +4,6 @@ https://www.dropbox.com/scl/fi/oe2oc1atvsgg4nys3rv2m/Chevrolet_Caprice_FIRBY.zip
 
 Cruz 16
 https://www.dropbox.com/scl/fi/aecgomz6tchopfrq36oxi/cruze16_1.zip?rlkey=ismcij8zpmduoar0mviph7u3g&st=l3mjhlz1&dl=1
-Intra 2007
-https://www.dropbox.com/scl/fi/8li9xesv7i96xpyefb7p9/elantra_2007_by_abdo_husyan.zip?rlkey=c2bucd9q7qjoifrvp13smgzq2&dl=1
 
 Camry 2006 
 https://www.dropbox.com/scl/fi/cvfswp5t6thooxmz59hs2/Toyota_Camry_2006.zip?rlkey=8o3r7ogjx9repu6zyitxfn7cz&dl=1
@@ -32,4 +30,5 @@ https://www.dropbox.com/scl/fi/ujz4nnjr4fh3k6vf07sdl/elantraad.zip?rlkey=ief6b4x
 Land Cruiser 202020
 https://www.dropbox.com/scl/fi/u4rzv69icso0z5nbupgwp/tlc200k.zip?rlkey=6sw90w71ol91knsticvq9hqq7&dl=1
 
-Tahoe police https://www.dropbox.com/scl/fi/ucj33x7ic0mn756dpwb59/Chevrolet-Tahoe.zip?rlkey=b9721cxexokwss8fdyc5weigw&dl=1
+Sierra 2013
+https://www.dropbox.com/scl/fi/lxeanfi08jy6k521km4u8/GMC-Sierra-2013-2007.zip?rlkey=1usls9ef7mar0tj8hkdc2enje&dl=1
