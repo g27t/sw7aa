@@ -8,10 +8,6 @@ https://www.dropbox.com/scl/fi/aecgomz6tchopfrq36oxi/cruze16_1.zip?rlkey=ismcij8
 Camry 2006 
 https://www.dropbox.com/scl/fi/cvfswp5t6thooxmz59hs2/Toyota_Camry_2006.zip?rlkey=8o3r7ogjx9repu6zyitxfn7cz&dl=1
 
-
-Land Cruiser 2020
-https://www.dropbox.com/scl/fi/q0f5gdb5ifh3jpir3o60c/vehicles.zip?rlkey=zxyqxrrgwiv5czmju91shy8wq&dl=1
-
 mep https://www.dropbox.com/scl/fi/i0w1stjnwitvul3zb22ol/3thim_AL_SLy.zip?rlkey=ff0zivmnmp4yqs6iidcfzgone&st=t1nflnsf&dl=1
 
 Elantra https://www.dropbox.com/scl/fi/sjgxf0ce3tbp0lw9ex83c/Elantra.zip?rlkey=svmr5br4n3abone8lx9z9rddh&dl=1
@@ -32,4 +28,3 @@ https://www.dropbox.com/scl/fi/u4rzv69icso0z5nbupgwp/tlc200k.zip?rlkey=6sw90w71o
 
 Doug 2010 https://www.dropbox.com/scl/fi/0b3sms2jeu6zqcag7dvco/necrocharger.zip?rlkey=5s4x8593pghsya7qoclh1y5kt&dl=1
 
-map gta https://www.dropbox.com/scl/fi/pgndn244dtex913ss2tfh/gtasa.zip?rlkey=t40y7pupeqmouzxdi2vj4msto&dl=1
