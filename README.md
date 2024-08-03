@@ -37,4 +37,4 @@ https://www.dropbox.com/scl/fi/7epl7wnwxsuakc3lraxxb/Nissan_Altima_2023-2024.zip
 https://www.dropbox.com/scl/fi/4q6vxbue1fcaxa44kf7zs/taho22kenemation___40_1__41_.zip?rlkey=61wls7pes5janl4j6k31iklq7&dl=1
 
 ماب هجوله 
-https://www.dropbox.com/scl/fi/tcarueedulaomy0w6vnyy/jubail-city-By-M6Noo5.zip?rlkey=qkfdq9qc2k8sy1sci66lsizxx&st=o2queshx&dl=1
+https://www.dropbox.com/scl/fi/9rle0brufc0bxded8anxu/alfrusiya-wLi.zip?rlkey=sg0rroe4bsfvm987unuix6dd8&st=5eivubfr&dl=1
