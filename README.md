@@ -25,3 +25,7 @@ https://www.dropbox.com/scl/fi/4q6vxbue1fcaxa44kf7zs/taho22kenemation___40_1__41
 ماب هجوله 
 https://www.dropbox.com/scl/fi/0baxo0hheuluyqczbjo52/1Toxic_hajualh.zip?rlkey=bi8hnohzuxfvxzxcs7dsadvcz&dl=1
 هيلكس https://www.dropbox.com/scl/fi/m8wxfq1a9lln1h3g92rk6/Abo3Zmh_hilux_v1.zip?rlkey=rx6nqt7q3f749xp3gchinwtwf&st=etmrtydx&dl=1
+
+سيرا
+https://www.dropbox.com/scl/fi/kcya368up8m5n
+xwxjoftd/GMC-Sierra-2017-2015-V1.2.zip?rlkey=csnfms4n5nz7fyui6wvhque75&dl=1
