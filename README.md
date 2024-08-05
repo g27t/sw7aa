@@ -28,3 +28,8 @@ https://www.dropbox.com/scl/fi/z53ra4n785k4ln0n9yqd0/1Toxic_hajualh.zip?rlkey=cq
 
 سيرا
 https://www.dropbox.com/scl/fi/kcya368up8m5nxwxjoftd/GMC-Sierra-2017-2015-V1.2.zip?rlkey=csnfms4n5nz7fyui6wvhque75&dl=1
+
+ربع https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85eefpbptufv4xqdiz3y&st=w71pdkbo&dl=1
+
+غماره 
+https://www.dropbox.com/scl/fi/9ik354eaexkfxp4y1b8my/AM-hulix_1.zip?rlkey=ypu188ygpzz2e2k049rjqdz6m&st=wj2iqfiz&dl=1
