@@ -33,3 +33,5 @@ https://www.dropbox.com/scl/fi/kcya368up8m5nxwxjoftd/GMC-Sierra-2017-2015-V1.2.z
 
 غماره 
 https://www.dropbox.com/scl/fi/9ik354eaexkfxp4y1b8my/AM-hulix_1.zip?rlkey=ypu188ygpzz2e2k049rjqdz6m&st=wj2iqfiz&dl=1
+اف جي 
+https://www.dropbox.com/scl/fi/klkfg45cb6ksb2c8owi6j/fj_meto.zip?rlkey=xj1om284pdxn9xv7fjkwctb1y&dl=1
