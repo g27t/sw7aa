@@ -37,3 +37,5 @@ https://www.dropbox.com/scl/fi/9ik354eaexkfxp4y1b8my/AM-hulix_1.zip?rlkey=ypu188
 https://www.dropbox.com/scl/fi/klkfg45cb6ksb2c8owi6j/fj_meto.zip?rlkey=xj1om284pdxn9xv7fjkwctb1y&dl=1
 
 اكورد https://www.dropbox.com/scl/fi/hktop6j7mlwavyl4o7c28/Honda-Accord-Pack.zip?rlkey=8fnuwktl8kuanp9dmqonlgy8q&st=11s08t6y&dl=1
+
+تاهو https://www.dropbox.com/scl/fi/zhkli8bnlbw3a1v0g293n/Chevrolet-Tahoe.zip?rlkey=udsuy98echest736e7vj5ue64&dl=1
