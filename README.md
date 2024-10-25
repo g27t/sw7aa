@@ -40,3 +40,6 @@ https://www.dropbox.com/scl/fi/klkfg45cb6ksb2c8owi6j/fj_meto.zip?rlkey=xj1om284p
 
 كامري 11
 https://www.dropbox.com/scl/fi/1sacdr261qzu6kqzb97qn/camryxv40.zip?rlkey=7l0szc4kxqpmcqxdi3lhexh1x&dl=1
+
+التيما 11
+https://www.dropbox.com/scl/fi/vsuznpa12ngl3urheq99o/Altima_2017_KHwylD.zip?rlkey=1nj4iu88ldb74894qx002svfp&dl=1
