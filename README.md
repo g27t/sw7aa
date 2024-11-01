@@ -44,4 +44,6 @@ https://www.dropbox.com/scl/fi/1sacdr261qzu6kqzb97qn/camryxv40.zip?rlkey=7l0szc4
 التيما 11
 https://www.dropbox.com/scl/fi/vsuznpa12ngl3urheq99o/Altima_2017_KHwylD.zip?rlkey=1nj4iu88ldb74894qx002svfp&dl=1
 
-فورد بوليس https://www.dropbox.com/scl/fi/c109aczln7kwc81adbf2g/Ford_Crown_Victoria_V2.zip?rlkey=1x8gqbn6j81dbphuv9524o2iz&dl=1
+فورد بوليس https://www.dropbox.com/scl/fi/lsiobbceuctds15bmjiio/
+Abo3Zmh_hilux_v1.zip?
+rlkey=ys6pvhsp63rxrmouvsfgz87jg&st=mgjou4uq&dl=1
