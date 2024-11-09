@@ -44,3 +44,5 @@ https://www.dropbox.com/scl/fi/1sacdr261qzu6kqzb97qn/camryxv40.zip?rlkey=7l0szc4
 التيما 11
 https://www.dropbox.com/scl/fi/vsuznpa12ngl3urheq99o/Altima_2017_KHwylD.zip?rlkey=1nj4iu88ldb74894qx002svfp&dl=1
 
+
+https://www.mediafire.com/file/avuvxhq9ok5vztk/Altima_2017_KHwylD.rar/file
